@@ -20,7 +20,7 @@ Eudora email download
 
 [eudora 7.1.0.9 download](https://vstmania.net/nl/)
 
-Eudora 8
+[Eudora 8](https://vstmania.net/nl/)
 
 Eudora OSE
 
